@@ -1,0 +1,1 @@
+# Nuke is the radiactive counterpart to the bomb. It has a way larger radius and can deal emotional and physical damage to victims over 70 miles away.
